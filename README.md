@@ -95,3 +95,9 @@
 ░░░░░░░░░░░░░░██░░░░░░░░░░██▓░░░░░░░░░░░░
 ░░░░░░░░░░░░░░▓██░░░░░░░░██░░░░░░░░░░░░░░
 ░░░░░░░░░░░░░░░░██████████░░░░░░░░░░░░░░░
+Se for esperar alguém fazer alguma coisa
+por você cê tá fudido...
+A não ser que você tenha alguma coisa 
+interessante para oferecer estará sempre
+sozinho... As mulheres já são assim, 
+imagina investidores...
