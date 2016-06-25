@@ -95,9 +95,5 @@
 ░░░░░░░░░░░░░░██░░░░░░░░░░██▓░░░░░░░░░░░░
 ░░░░░░░░░░░░░░▓██░░░░░░░░██░░░░░░░░░░░░░░
 ░░░░░░░░░░░░░░░░██████████░░░░░░░░░░░░░░░
-Se for esperar alguém fazer alguma coisa
-por você cê tá fudido...
-A não ser que você tenha alguma coisa 
-interessante para oferecer estará sempre
-sozinho... As mulheres já são assim, 
-imagina investidores...
+
+Se for esperar alguém fazer alguma coisa por você cê tá fudido... A não ser que você tenha alguma coisa interessante para oferecer estará sempre sozinho... As mulheres já são assim, imagina investidores... No final de tudo acabo chegando mesmo na sempre conclusão::: A IGNORÂNCIA É UMA BENÇÃO!!! E EU NÃO NASCI COM CÓDIGOS GENÉTICOS ÚTÉIS PARA SABOREAR A VIDA!
