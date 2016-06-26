@@ -43,7 +43,7 @@
 ▓█▓▓▓█▓═▒░▒░░██████████████▓████████████ 
 ▓█▓▓▓▒█░░▒═░██████▓█▓█▓█▓▓▓▒█▒▒▒▒▒██████
       
-                  CrashAngelArts@Brazil 2016
+A History without History
 
 ░░░░░░░░░░░░░░░░▓██████▓▓▓░░░░░░░░░░░░░░░
 ░░░░░░░░░░░░░█████▓▓█████████▓░░░░░░░░░░░
@@ -96,4 +96,4 @@
 ░░░░░░░░░░░░░░▓██░░░░░░░░██░░░░░░░░░░░░░░
 ░░░░░░░░░░░░░░░░██████████░░░░░░░░░░░░░░░
 
-Se for esperar alguém fazer alguma coisa por você cê tá fudido... A não ser que você tenha alguma coisa interessante para oferecer estará sempre sozinho... As mulheres já são assim, imagina investidores... No final de tudo acabo chegando sempre na mesma conclusão  <:::> A IGNORÂNCIA É UMA BENÇÃO!!! E EU NÃO SOU PORTADOR DE CÓDIGOS GENÉTICOS PARA SABOREAR A VIDA!  ENTÃO VIVA O BRASIL!!!
+Se for esperar alguém fazer alguma coisa por você cê tá fudido... A não ser que você tenha alguma coisa interessante para oferecer que beneficie o próximo ficará sempre sozinho... As mulheres já são assim, imagina investidores... No final de tudo acabo chegando sempre na mesma conclusão  <:::> A IGNORÂNCIA É UMA BENÇÃO!!! E EU NÃO SOU PORTADOR DE CÓDIGOS GENÉTICOS PARA SABOREAR A VIDA! A única resposta que existe é atenção de gente miseravis.... Mais fácil apresentar-se como pessoas desejando sua Luz, Sua Força e suas Ideias do que fazer um trabalho sério... [ENTÃO, VIVA O BRASIL]
